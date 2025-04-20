@@ -4,7 +4,7 @@ Watch Indian Premier League 2025 live on Crictime! Enjoy free HD cricket streami
 
 ## ???????? [Watch Indian Premier League 2025](https://cricfb.com/) ????????
 
-![IPL_Predictions](https://github.com/neerajcodes888/IPL-Victory-Analysis-with-Prediction/assets/98253646/6cf0e030-78cd-417a-9f54-7b579033d20f)
+<img src = 'https://www.insidesport.in/wp-content/uploads/2022/01/eng-banner-2.jpg'>
 
 Fans in more than 80 territories can watch via ICC tv and free audio of all 15 matches is available via the ICC match centre globally.
 
