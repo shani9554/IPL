@@ -6,11 +6,11 @@ Watch Indian Premier League 2025 live on Crictime! Enjoy free HD cricket streami
 
 <img src = 'https://www.insidesport.in/wp-content/uploads/2022/01/eng-banner-2.jpg'>
 
-Fans in more than 80 territories can watch via ICC tv and free audio of all 15 matches is available via the ICC match centre globally.
+Fans in more than 80 territories can watch via ICC tv and free audio of all 74 matches is available via the ICC match centre globally.
 
-Each match will be a blockbuster as eight teams gear up to participate in the ninth edition of the Indian Premier League which will be held in Pakistan and UAE across 19 days.
+Each match will be a blockbuster as eight teams gear up to participate in the ninth edition of the Indian Premier League which will be held in India across 8 weeks.
 
-Comprehensive coverage of the Indian Premier League is available globally through the ICC’s Broadcast and Audio partners.
+Comprehensive coverage of the Indian Premier League is available globally through the Star Sports, Willow and many more.
 
 ## How to Watch Indian Premier League 2025 on CricHD
 
